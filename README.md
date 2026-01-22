@@ -1,8 +1,6 @@
 ![108245](https://github.com/user-attachments/assets/be1fa078-0992-44fd-b844-3346e2eafc2d)
 
-hihi
-
-That's all im saying 
+heyy
 
 FANDOMS:
 bfb,tpot,bfdie,dandys world,ponyo,and more yayy
@@ -16,6 +14,11 @@ anyway
 if your a rando and cuddle me, please ask first!!
 
 DNI ROLEPLAYS AND GROSS PEOPLE.
+
+![uvqAK36](https://github.com/user-attachments/assets/6ff2b43a-79f3-430e-b812-5a5494e9e65b)
+![tVIR5wF](https://github.com/user-attachments/assets/1c4b4744-97b6-4769-b037-39f36de034bb)![6OPPS9v](https://github.com/user-attachments/assets/da669d78-93eb-4984-9913-f704ad30db53)
+
+
 
 ![108158](https://github.com/user-attachments/assets/276347ec-c52e-4fb6-b7ef-ca5103fe7164)
 
